@@ -1,10 +1,10 @@
 Marinade:
 
-- worcestershire sauce
+- soy sauce
 - corn oil
 - MSG
 - salt
-- pepper
+- black pepper
 - rice vinegar
 - honey
 - ginger powder
@@ -14,4 +14,4 @@ Marinade:
 
 Add more of the marinade for shorter marination times.
 
-You can add soy sauce instead of worcestershire sauce.
+You can add worcestershire sauce instead of sauce.
