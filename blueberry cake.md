@@ -33,3 +33,4 @@
 
 - Mix juice of lemon with powdered sugar
 - Apply after the cake is completely cooled
+- (optional) poke holes in cake to allow glaze to absorb
