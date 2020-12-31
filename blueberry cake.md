@@ -3,7 +3,7 @@
 - 1/2 cup of softened butter
 - 1 cup of granulated sugar
 - 2 eggs
-- Tsp vanilla extract
+- 1 tsp vanilla extract
 - 2 cup flour
 - A bit of flour to coat blueberries
 - 1/2 tsp salt (unless you're using salted butter obviously)
