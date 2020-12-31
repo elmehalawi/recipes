@@ -5,7 +5,7 @@
 - 2 eggs
 - Tsp vanilla extract
 - 2 cup flour
-- A bit of flower to coat blueberries
+- A bit of flour to coat blueberries
 - 1/2 tsp salt (unless you're using salted butter obviously)
 - 2 tsp baking powder
 - 1/2 cup of milk
@@ -17,7 +17,7 @@
 
 - Preheat oven to 375°F
 - Separate half of a cup of blueberries and mash them with a fork
-- Toss all of blueberries (separately) with blueberry flour
+- Toss all of blueberries (separately) with a bit of flour
 - Cream butter and granulated sugar
 - Add eggs one at a time beating well after each addition
 - Add vanilla and the zest of the lemon
