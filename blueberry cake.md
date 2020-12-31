@@ -26,6 +26,7 @@
 - Take mixer bowl off if using mixer at this point
 - Add crushed blueberries and mix
 - Fold remaining whole berries in (don't overmix)
+- (optional) before baking, sprinkle on mixed sugar, nutmeg, cinnamon
 - Stick it in a loaf pan and bake for 35 min to an hour (it might even be longer than that honestly)
 
 ## Lemon glaze
