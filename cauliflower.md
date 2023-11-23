@@ -24,3 +24,5 @@
 
 - ثم نغطيها بالدقيق (طحين)
 - بعد التحمير نرش عليها دقه أو ملح و فلفل أسود و كمون ز شطة
+
+Alternatively you can create a batter using the egg, milk, and cilantro. 
