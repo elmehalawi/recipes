@@ -8,6 +8,7 @@ Ingredients for rice:
 - A cup of rice
 - A large bunch of parsley (whatever's on sale and fresh; finely chopped)
 - A quarter bunch of cilantro
+- Dill
 - 3/4 of the sauce
 
 Steps for sauce:
