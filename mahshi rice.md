@@ -23,4 +23,5 @@ Steps for rice:
 - Wash rice and strain
 - After the rice drains, add a pinch (about a quarter of a teaspoon) of cumin
 - Mix in the cumin in the strainer
+- Wait for the suace to cool to room temp
 - Dump the rice into a large bowl and mix in the cilantro and parsley and the sauce
